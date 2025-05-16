@@ -3,7 +3,7 @@
 
 ## About Me 🚀
 
-I'm a product designer with a passion for crafting intuitive, user-centered experiences for customers and businesses. Currently expanding leaning into design engineering to bridge the gap between design and development, and bring ideas to life with both aesthetic clarity and functional precision.
+I'm a product designer with a passion for crafting intuitive, user-centered experiences for customers and businesses. Currently expanding and leaning into design engineering to bridge the gap between design and development, and bring ideas to life with both aesthetic clarity and functional precision.
 
 - 📫 How to reach me: **gloriaobianuju34@gmail.com**
 
