@@ -17,6 +17,6 @@ I'm a product designer with a passion for crafting intuitive, user-centered expe
 
 ## Get in Touch 📬
 - **LinkedIn**(www.linkedin.com/in/obianujuafamefuna)
-- **Twitter**(https://x.com/steph_uxd)
+- **Twitter**(https://x.com/stefnnyyx)
 
 
